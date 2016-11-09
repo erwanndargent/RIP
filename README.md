@@ -1,2 +1,0 @@
-# RIP
-Ride in Paris
